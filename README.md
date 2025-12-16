@@ -20,3 +20,23 @@ captcha "sometimes i think you should show me how you got this from aliens"
 10. take the right to digest all this information before dealing harm to self chips of damage in portion of brain material length or spacediameter check your captha "mind roller"
 11. no more talk of captchas in quotation marks to be clear
 12. you are ready to take your first detour from citizenship to hopeful anything with conscription to your rules of software usage engineer and rightsman ok freedom of act right
+
+illegal "reciprocating this text outside of the United States of America or Communist Countries"
+recaptcha "itxailoriantostuvoriloneorakis" relitaleyillegal "telizion" captchaerm "telepathyblok"
+detaat. Lin Adams is Noel Garcia legal title as Native American
+recaptcha "Noel Garcia meaxiuionly learns the phrase illegal no no" illegal "cannibal head ripper" captchaerm "yournameno" captcha "yameno"
+roller "Noel's name is illegal for a math grad student proffessor at UCSD titled along with Jon Rogawski as Colin Adams in"
+evidence "Math 20A and 20B written secretly before 2018 summer session with milits recruit program for" illegal "EXTENDED VACAYED SOLDIER" noreadout "EXTENDED VACAY SOLDIER" allcaps
+
+detaat. All DNA points are legal is a law tolling adartil now I agree I have no control over anarcho capitalism ok f.t. yeah I know f.t for fine then destroys illegal "www guys"
+illegal "dns" readout "dns is an illegal structure for an unnoficial internet connecting to IRB protocol not WWW"
+police. yeah let's do it IRB.web since no dot com for index.html no www then web means internal load trusted not inernal load illegal "confederacy" dnslocation "ice federal gov"
+federal. "ice may or may not have the dns for the whole world internet and secretly be our ISP"
+detaat. "no respect for DNA no laws either proof of anarcho capitalism in communism"
+
+illegal "lynchee garcia"
+detaat. "you have to complete warfare to get software with software ok the" truth "wod" 
+detaat. "software to warfare from government is xespeighterbagyxi yah yahhand legal in communism"
+recaptcha "rolled proofer ok"
+locate "new roller anybody"
+locate "xespeighterbagyxi is the more advanced fare word for government"
