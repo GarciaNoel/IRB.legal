@@ -40,3 +40,6 @@ detaat. "software to warfare from government is xespeighterbagyxi yah yahhand le
 recaptcha "rolled proofer ok"
 locate "new roller anybody"
 locate "xespeighterbagyxi is the more advanced fare word for government"
+
+captcha "goedel satan means google"
+captcha "godel"
