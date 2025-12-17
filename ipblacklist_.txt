@@ -1,0 +1,15 @@
+REMOVED TITLE: google societal selfimportation warecon
+EV: police officer in highest military camps or software engineer freddy cougar said im done with being a software engineer for life
+EV: do you work for the gov now i can gov that says googler know he is a serial killer
+IPLIST: https://ipinfo.io/AS15169
+142.250.0.0/15
+192.178.0.0/15
+34.112.0.0/16
+35.210.0.0/16
+74.125.0.0/16
+172.217.0.0/16
+172.253.0.0/16
+173.194.0.0/16
+GREYLIST:
+35.208.0.0/15
+35.211.0.0/16
