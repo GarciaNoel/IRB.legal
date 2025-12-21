@@ -52,3 +52,5 @@ locate "xespeighterbagyxi is the more advanced fare word for government"
 
 captcha "goedel satan means google"
 captcha "godel"
+
+captchaerm "playing music is like pornography"
